@@ -54,4 +54,4 @@ IMVU Promoter Hub is an independent browser extension and is not affiliated with
 
 If you have any questions or concerns about this Privacy Policy, please contact:
 
-contact@example.com
+fedrbodr@gmail.com
